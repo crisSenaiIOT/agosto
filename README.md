@@ -1,1 +1,1 @@
-# Nesse repositória adicionarei as atividade do mês de agosto
+# Nesse repositório adicionarei as atividade do mês de agosto
